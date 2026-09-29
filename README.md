@@ -1,1 +1,1 @@
-# gu-2nd-sem-result
+# gu-result-1sem
